@@ -1,1 +1,1 @@
-# mathmatics
+# mathematics
